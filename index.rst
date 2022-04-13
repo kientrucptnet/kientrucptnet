@@ -12,7 +12,10 @@ rất có thể thêm dầu bóng, các loại bột màu, tinh màu…, tùy th
 
 Kiến trúc phong thuỷ chuyên tư vấn kiến trúc, phong thuỷ, ngoài ra chúng tôi giới thiệu các thiết kế nội thất, trang trí vẽ tranh tường đẹp ấn tượng
 
-Khu Đô Thị Tân Tây Đô, Tân Lập, Đan Phượng, Hà Nội
+"- Hà Nội: Khu Đô Thị Tân Tây Đô, Tân Lập, Đan Phượng, Hà Nội 
+- Đà Nẵng: 160 Huỳnh Ngọc Huệ, Thanh Khê, Đà Nẵng 
+- TPHCM: 220 Phổ Quang, Phường 9, Quận Phú Nhuận, TPHCM
+- Cần Thơ: 17 Quốc lộ 91B, Hưng Lợi, Ninh Kiều, Cần Thơ"
 
 0962604887
 
